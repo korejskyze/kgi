@@ -1,2 +1,2 @@
-kgi
+korejsky-zensen.cz
 ===
